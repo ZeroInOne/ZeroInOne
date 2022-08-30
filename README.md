@@ -1,0 +1,3 @@
+- 👋 Hi, I'm @ZeroInOne
+- 👀 I am interested in technology and computer science in general.
+- 🌱 I'm currently learning nothing. I'm still in college. (3rd)
